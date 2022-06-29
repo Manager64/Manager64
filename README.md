@@ -12,6 +12,7 @@ Former Vice-President of Backstage Resturant (100+ Members, Decreased to 80-87)
 Former Vice-President of Lava Resorts (712+ Members)
 Former Vice-President of Lava Hotels (100+ Members)
 Former Co-Founder of 6x8kDesigns
+O5-6 of an SCPF
 ```
 
 🌟 - I specialize in:
