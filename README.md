@@ -8,12 +8,13 @@ Hello! I am **@1xozf**, I am a Turkish Game Developer on Roblox & also a Discord
 
 ⎋ Recent Experiences:
 ```
-Former Vice-President of Backstage Resturant (100+ Members, Decreased to 80-87)
 Former Vice-President of Lava Resorts (712+ Members)
 Former Vice-President of Lava Hotels (100+ Members)
 Former Co-Founder of 6x8kDesigns
 O5-6 of an SCPF
 ```
+
+Vice-President of Backstage Resturant (100+ Members, Decreased to 80-87)
 
 🌟 - I specialize in:
 ```
