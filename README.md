@@ -7,14 +7,16 @@
 Hello! I am **@1xozf**, I am a Turkish Game Developer on Roblox & also a Discord Bot Developer with expereince that lasted for a while!
 
 ⎋ Recent Experiences:
+
 ```
-Former Vice-President of Lava Resorts (712+ Members)
 Former Vice-President of Lava Hotels (100+ Members)
-Former Co-Founder of 6x8kDesigns
 O5-6 of an SCPF
 ```
 
 Vice-President of Backstage Resturant (100+ Members, Decreased to 80-87)
+Vice-President of Lava Resorts (712+ Members)
+Co-Founder of 6x8kDesigns(CURRENTLY)
+Jack's SCPF Developer(Programmer)
 
 🌟 - I specialize in:
 ```
